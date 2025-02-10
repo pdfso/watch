@@ -1,3 +1,20 @@
-Diretta Inter-Fiorentina ore 20.45: dove vederla in tv, in streaming e probabili formazioni
-Gli uomini di Inzaghi ritrovano la Viola di Palladino dopo il ko nel recupero della 14ª giornata
-L'Inter ospita la Fiorentina nell'incontro valido per la 24ª giornata di Serie A. Gli uomini di Inzaghi ritrovano la Viola dopo la disfatta di Firenze, dove i padroni di casa si sono imposti con il finale di 3-0 firmato Ranieri e Kean (autore di una doppietta). Una sconfitta che ha in parte scombinato i piani stagionali dei nerazzurri, che si presentano all'appuntamento di San Siro con 51 punti e un ritardo di 4 lunghezze sul Napoli. Con l'Udinese al Maradona, Conte non è infatti andato oltre l'1-1. La formazione di Palladino, reduce da 3 successi consecutivi, proverà a replicare la prestazione del Franchi: la posta in palio è il 4º posto a pari merito con la Lazio nonché il sorpasso (o l'aggancio) ai danni della Juventus, in 5ª posizione con 43 punti. L'agenda di Lautaro e compagni prevede poi il match contro i bianconeri di Thiago Motta, in programma alle ore 20.45 di domenica 16 febbraio presso l'Allianz Stadium di Torino. La Fiorentina opiterà invece il Como. 
+Inter affronterà Fiorentina il 10 feb 2025 alle 19:45 UTC allo San Siro/Giuseppe Meazza stadio, Milan città, Italy. La partita è di Serie A.
+Inter ha giocato contro Fiorentina 1 partite in questa stagione. Al momento, Inter è 2°, mentre Fiorentina è 5° in classifica. Stai cercando un confronto tra i migliori giocatori delle due squadre? Il sistema di valutazione di Sofascore assegna a ogni giocatore un rating specifico basato su numerosi fattori.
+Sul livescore di Sofascore puoi trovare tutti i risultati precedenti di Inter contro Fiorentina selezionati tra tutti i loro incontri. Sofascore inoltre offre il miglior modo per seguire il risultato in diretta della partita grazie alle molteplici funzionalità. Tu puoi:
+Scopri in diretta chi ha segnato nella partita
+Ottieni informazioni in tempo reale su quale squadra sta dominando nella partita usando la funzionalità 'Attack Momentum'
+Segui le statistiche nei dettagli come possesso palla, tiri, calci d'angolo, grandi occasioni create, cartellini, passaggi chiave, duelli e molto altro
+Controlla tutti i testa a testa - per esempio, nell'ultima stagione Inter e Fiorentina si sono affrontati 2 volte
+Segui sempre tutti le partite in casa e in trasferta di ogni squadra della Serie A
+Scopri cosa pensa la community di Sofascore su quale squadra è favorita a vincere questa partita.
+Tutte queste funzionalità possono aiutarti a decidere su come potrebbe andare la partita tra {homeTeamName} vs {awayTeamName}. Anche se Sofascore non offre direttamente la possibilità di scommettere, noi selezioniamo le migliori quote e ti mostriamo i migliori siti che offrono scommesse live. Le quote live di {streamSponsor} si possono vedere sulla sezione live score</sportlink> di Sofascore <sportlink>{sportName}.
+Dove posso guardare Inter vs. Fiorentina? Nella sezione Canali TV puoi trovare la lista di tutti i canali che trasmettono in diretta Inter – Fiorentina. Potresti trovare la partita in diretta streaming nei nostri siti di scommesse partner o cliccando nei link legali offerti direttamente da Sofascore.
+Dettagli eventi:
+NOME: Inter - Fiorentina
+DATA: 10 feb 2025
+TEMPO: 19:45 UTC
+SEDE: San Siro/Giuseppe Meazza, Milan, Italy
+Maggiori dettagli:
+Inter risultati in diretta, programmi e punteggi
+Fiorentina risultati in diretta, programmi e punteggi
+Sofascore livescore è disponibile come app per iPhone e iPad, Android e Windows Phone. Potete trovarli in tutti gli store nelle diverse lingue come "Sofascore". Installa l'app Sofascore e segui in diretta Inter Fiorentina sul tuo dispositivo mobile!
